@@ -2,6 +2,8 @@
 
 > This list is based solely on my PERSONAL interest, so you can not find all openings here.
 
+Go see my top 5 immediately [here](#-my-ranking-summary).
+
 # My Opening List
 
 ## FE
