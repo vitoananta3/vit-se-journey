@@ -1,6 +1,6 @@
 # DISCLAIMER
 
-> This list is based solely on my PERSONAL interest, so some openings may not be included.
+> This list is based solely on my PERSONAL interest, so you can not find all openings here.
 
 # My Opening List
 
